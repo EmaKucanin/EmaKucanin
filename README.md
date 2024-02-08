@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @EmaKucanin
-- 👀 I’m interested in Software Engineer
+- 👀 I’m interested in Software Engineering
 - 🌱 I’m currently learning technology
 - 📫 How to reach me ig : ema.kucanin
 
